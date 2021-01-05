@@ -1,6 +1,6 @@
 # My Skype Id Is "heracles710_rns"
 
-    Usually I am working on skype.
+    Usually I work on skype.
     I think it is better to discuss about your project on skype.
     
     Don't metion skype on freelancer site pls.
